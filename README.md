@@ -11,3 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...Coding 
 - 📫 How to reach me: ...through my email (lcarson20@students.ndc.edu)
 -->
+I am looking to make a personal website based around Graphic Design and Advertising. This Graphic Design and Advertising may be based around fashion or travel. 
+Since I am still open to many new things my Graphic Design and Advertising interest are not limited to these two areas. 
